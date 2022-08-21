@@ -1,4 +1,3 @@
-@@ -0,0 +1,17 @@
  Hi, I’m @v-buchkov
 
  I'm a financial markets professional with experience in fixed income and equity derivatives.
