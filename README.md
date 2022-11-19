@@ -7,7 +7,7 @@
 
  I’m looking to collaborate on researching and analyzing the financial markets with focus on applicability of the research.
 
- How to reach me - please, use buchkovv@bk.ru / buchkovv12@gmail.com to contact me.
+ How to reach me - please, use buchkovv@bk.ru / viacheslav.buchkov@gmail.com to contact me.
 
  Always happy to share my thoughts and try to solve some thrilling and complex tasks!
 
